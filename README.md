@@ -1,0 +1,2 @@
+# Silver-Gift-Band-for-Survivors
+This band is an amazing piece born from love for others. I created this band during the COVID-19 pandemic. As I noticed so many people suffering and the amazing dedication and resilience of our nation's hospital staff, I wanted to create a special for those whom I know personally. I originally created 10 bands which I passed out to nurses, doctors, techs, phlebotomists, a member of the cleaning staff, and other hospital workers.
